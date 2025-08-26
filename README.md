@@ -1,0 +1,1 @@
+T. Line Engineering Limited was incorporated in Nigeria on the 3rd of March 1989 as Licensed Electrical and Mechanical Engineering Contractors. The Company commenced full business with sole aim of providing high quality services in electrical/mechanical engineering services.
